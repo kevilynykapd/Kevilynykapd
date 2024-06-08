@@ -1,4 +1,5 @@
-Boas vindas ao meu perfil!! 💙💙
+Boas vindas ao meu perfil!! 💙
+
 Meu nome é Yasmim Kevilyn
 
 Estou estudando na Alura
